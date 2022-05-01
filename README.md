@@ -1,1 +1,0 @@
-# 2021-1e-javurkova-procvicovani_matiky
